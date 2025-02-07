@@ -98,7 +98,7 @@ Image by author
 <img width="633" alt="Screen Shot 2024-12-09 at 3 12 30 PM" src="https://github.com/user-attachments/assets/f2bbc9ac-f81f-43cd-add5-8afe1c4fd739">
 
 
-Image by author
+Image by the author
 
 **10. Referencecs**
 
